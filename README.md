@@ -1,1 +1,1 @@
-Bem vindo ao Bom Site
+Bem vindo ao Bom Site!
